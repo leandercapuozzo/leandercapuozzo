@@ -1,5 +1,5 @@
 - 🔥 Hi, I’m @leandercapuozzo
-- 🔥 I’m interested in art and fashion
+- 🔥 art and fashion
 - 🔥 I’m currently learning web 3
 - 🔥 I’m looking to collaborate web 3 tools revelvent to annabolinaofficial.com/store
 - 🔥 How to reach me leandercap@gmail.com
